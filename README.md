@@ -1,5 +1,6 @@
 
 вот так оно выглядит на poco f5 
+![photo_5382337841960445265_y](https://github.com/Maslyatiy/Last/assets/73582371/a8d05f15-6df8-4908-ae0d-f202cb7d060a)
 
 
 ![photo_5382337841960445266_y](https://github.com/Maslyatiy/Last/assets/73582371/12c4f208-19db-4f89-a224-829dfe4e1291)
