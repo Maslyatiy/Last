@@ -2,7 +2,18 @@
 вот так оно выглядит на poco f5 
 
 
-![Вот мп4, он почему то не отображает тут, но окээээээээ](https://github.com/Maslyatiy/OzonTerpit/assets/73582371/96319524-9226-4ad4-bdf7-06df66cab00d)
+![photo_5382337841960445266_y](https://github.com/Maslyatiy/Last/assets/73582371/12c4f208-19db-4f89-a224-829dfe4e1291)
+
+
+
+![photo_5382337841960445268_y](https://github.com/Maslyatiy/Last/assets/73582371/62d18ab9-47bb-4270-a76f-8691e2ff89a5)
+
+
+
+
+
+
+![photo_5382337841960445267_y](https://github.com/Maslyatiy/Last/assets/73582371/516aa601-9119-4450-ae70-9637cd93c348)
 
 
 
@@ -13,17 +24,5 @@
 
 
 
-
-
-
-
-
-
-
-
-
-а вот так из браузера 
-![image](https://github.com/Maslyatiy/OzonTerpit/assets/73582371/57535260-717c-4622-8f9e-a856ce2feea9)
-![image](https://github.com/Maslyatiy/OzonTerpit/assets/73582371/4efd2f5c-b913-4096-b851-0f95bcecaff5)
 
 
